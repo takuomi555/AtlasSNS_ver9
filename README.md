@@ -1,1 +1,1 @@
-# AtlasSNS_TAKUMI_HAYAKAWA
+# AtlasSNS_takumi_hayakawa
